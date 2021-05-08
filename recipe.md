@@ -1,0 +1,1 @@
+take a pizza base apply 2 teaspoons of pizza sauce then put slices of tomatoes ,capsicums,onions and olives then grate cheese then bake it for 10 mins and your pizza is ready 
